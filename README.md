@@ -14,4 +14,12 @@ Softcopy SKA UTAMA - Rp. 1.500.000
 Untuk Hardcopy dikenakan biaya yang sama seperti Softcopy (belum termasuk biaya kirim)
 ```
 
-Untuk keterangan lebih lanjut, silahkan whatsapp ke nomor 085102196963 
+### KETERANGAN LEBIH LANJUT
+```
+Whatsapp ke nomor 085102196963
+```
+
+atau kunjungi:
+
+* [Blogspot](http://sewaskadanskt.blogspot.com/) - Blog Sewa SKA dan SKT
+* [Facebook](https://www.facebook.com/sewaskadanskt/) - Facebook Page Sewa SKA dan SKT
